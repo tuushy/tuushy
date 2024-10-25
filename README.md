@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tuushy
-- 👀 I’m interested in pussy/sex.
+- 👀 I’m interested in music.
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on new songs (soundcloud @szymomilksippa)
 - 📫 How to reach me at ssobocinski2008@gmail.com
